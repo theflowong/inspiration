@@ -1,5 +1,5 @@
 # Inspiration
-inspiring projects of different disciplines
+inspiring projects and peoples of different disciplines
 
 ## Zoomquilt: beautiful zooming art
 
