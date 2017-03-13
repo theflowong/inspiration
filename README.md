@@ -20,3 +20,10 @@ http://banksy.co.uk/
 
 - street art protester / provocateur
 - "This is the first time the essentially bourgeois world of art has belonged to the people. We need to make it count." (http://www.smithsonianmag.com/arts-culture/the-story-behind-banksy-4310304/#DJ7w8HqRsixYhuLt.99)
+
+
+## Hyojoo Ko
+
+https://www.youtube.com/watch?v=e7os4K_xI9Y
+
+- extremely elegant Korean woman longboard dancer; battles a lot of stereotypes of what a longboarder should look like
