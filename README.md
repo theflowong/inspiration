@@ -1,5 +1,5 @@
-# Inspiration
-inspiring projects and peoples of different disciplines
+# Inspiration & Appreciation
+a log of projects and peoples of different disciplines that inspire me in one way or the other
 
 ## Zoomquilt: beautiful zooming art
 
@@ -28,6 +28,6 @@ https://www.youtube.com/watch?v=e7os4K_xI9Y
 
 - extremely elegant Korean woman longboard dancer; battles a lot of stereotypes of what a longboarder should look like
 
-## Dr. Seuss
+## Dr. Seuss, Calvin and Hobbes
 
 - sometimes, wisdom is found in simplicity
