@@ -27,3 +27,7 @@ http://banksy.co.uk/
 https://www.youtube.com/watch?v=e7os4K_xI9Y
 
 - extremely elegant Korean woman longboard dancer; battles a lot of stereotypes of what a longboarder should look like
+
+## Dr. Seuss
+
+- sometimes, wisdom is found in simplicity
