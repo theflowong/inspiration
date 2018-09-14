@@ -1,5 +1,5 @@
 # Inspiration
-for my own personal record and for others to discover: a log of projects and peoples of different disciplines that I find admirable and inspiring
+for my own personal record and for others to discover: a sporadically updated log of projects and peoples of very different disciplines that I find admirable and inspiring in their own ways
 
 
 ## Zoomquilt: never-ending zooming art
